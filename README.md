@@ -1,1 +1,1 @@
-# Syntecxhub_-Week_01_Projects
+# Syntecxhub_internship_Projects
